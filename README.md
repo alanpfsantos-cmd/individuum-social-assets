@@ -1,0 +1,1 @@
+# individuum-social-assets
